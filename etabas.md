@@ -5,6 +5,6 @@
 - Add orange peel
 - Add cloves & cinnamon
 - Bring to boil
-- Let sit at least 3 days in mason jar
+- Let sit at least 2 days in mason jar
 - Add simple syrup
 - Serve
